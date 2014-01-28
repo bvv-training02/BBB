@@ -1,7 +1,7 @@
 BBB
 ===
 
-Program sdržení
+Program sdružení
 
 Nebudeme krást.
 
